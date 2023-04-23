@@ -3,4 +3,4 @@
 
 
 さいころの画像は「チコデザ」さんのものを使用させてもらいました  
-https://chicodeza.com/terms.html
+https://chicodeza.com/
